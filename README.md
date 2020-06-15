@@ -10,3 +10,8 @@
 （不过非会员需要每天签到领流量）
 
 🧙‍♀️
+
+<hr><br><br>
+
+上述链接打不开？ 👉 链接：[https://pan.baidu.com/s/1XlpgOcyKF_ML1X1pep3D9w](https://pan.baidu.com/s/1XlpgOcyKF_ML1X1pep3D9w) ；密码：acd1
+
